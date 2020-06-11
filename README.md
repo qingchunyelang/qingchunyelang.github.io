@@ -6,7 +6,7 @@
 
 [onedrive链接](https://classalechkeduhk-my.sharepoint.com/:f:/g/personal/konnyaku_sssvip_cf/EiW4gjgQuVVDj3WYcpV2L8ABS0d1Js8Zwm9iefP1qHhBLA)
 
-[资源目录](https://qingchunyelang.github.io/index.md)
+[资源目录](https://qingchunyelang.github.io/catalog.html)
 
 密码:Kaede
 
